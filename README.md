@@ -1,1 +1,1 @@
-Things I find useful in research
+Things I find useful
